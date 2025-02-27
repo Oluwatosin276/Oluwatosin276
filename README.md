@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Oluwatosin276
 - 👀 I’m interested in Virtual Assistant Roles
 - 🌱 I’m currently learning tech roles especially Virtual Assistant Roles
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Executive roles
 - 📫 How to reach me: oluwatosin21@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love learning new things
